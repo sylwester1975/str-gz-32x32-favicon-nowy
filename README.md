@@ -1,0 +1,1 @@
+# str-gz-32x32-favicon-nowy
